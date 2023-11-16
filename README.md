@@ -23,4 +23,4 @@ The realme 7 Pro (codenamed _"RMX2170"_) is a mid-range smartphone from Oppo's s
 
 ## Device picture
 
-![realme 7 Pro](https://5.imimg.com/data5/SELLER/Default/2022/7/BK/KQ/HH/91115432/realme-7-pro-6-128gb-1000x1000.jpg)
+![realme 7 Pro](https://static.toiimg.com/thumb/msid-78536381,imgsize-94219,width-400,resizemode-4/78536381.jpg)
